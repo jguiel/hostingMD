@@ -8,7 +8,7 @@ You're visiting the bay and staying in SF? Here's what we recommend to do. We li
 These are musts for visiting San Francisco; preferably to do with us, but acceptable to do on your own.
 
 ### Twin Peaks
-Tallest point in the city where the iconic skyline resident, Mt. Sutro tower, is found. Intense walk up to the top from our house, but it's absolutely worth it. You can also drive up, less fun. I feed the ravens there occassionally, they'll hang out if you have granola or nuts. Panoramic views of the city only when it's not enveloped in fog so make sure you can see mt. sutro out your window before walking up.
+Tallest point in the city where the iconic skyline resident, Mt. Sutro tower, is found. Intense walk up to the top from our house, but it's absolutely worth it. You can also drive up, less fun. I feed the ravens there occasionally, they'll hang out if you have granola or nuts. Panoramic views of the city only when it's not enveloped in fog so make sure you can see mt. sutro out your window before walking up.
 <br>
 
 - [Summit parking lot](https://maps.app.goo.gl/bGA3Z3wAkzVwDW4i7)
@@ -26,7 +26,7 @@ The entrance to the botanical gardens is super close to Tartine in the Sunset. T
 - [Tartine to SFBG Directions](https://maps.app.goo.gl/2gNQpHamoskFvQzu6)
 
 ### Dandelion Chocolate
-Either the tour of the Mission District factory, or just going to the retail store on Valencia, this place is required imo. Best chocolate I've ever had; it's all like single-origin chocolate with only two ingredients. The tour is fun if you can, but if you can't make it, you have to get a hot chocolate, cookie, and at least one other thing from the Valencia store. Sasmple the chocolate while you wait, and get extra marshmellows which are the best part.
+Either the tour of the Mission District factory, or just going to the retail store on Valencia, this place is required imo. Best chocolate I've ever had; it's all like single-origin chocolate with only two ingredients. The tour is fun if you can, but if you can't make it, you have to get a hot chocolate, cookie, and at least one other thing from the Valencia store. Sample the chocolate while you wait, and get extra marshmallows which are the best part.
 <br>
 
 - [Dandelion Factory](https://maps.app.goo.gl/GBCRh2reVhHxnLMZ7) - Tours are $20 a head and you get a coupon for a free drink
@@ -104,5 +104,5 @@ Brewskis in the city
 - [Devil's Teeth](https://maps.app.goo.gl/6JHR3wmW72F9VfG26) - Fire breakfast sandwiches, there's two others in the city
 - [The Laundromat SF](https://maps.app.goo.gl/TvxjBRRxGsK7SZwo8) - Best bagels in the city; you get them fresh and just rip n' dip into a cup of cream cheese. good pizza too.
 - [Dragon Beaux](https://maps.app.goo.gl/pzigzp3q4ZM5Zh8YA) - Pricier dimsum. hot pot, dumplings, etc.
-- [Foghorn Chicke](https://maps.app.goo.gl/48rMhMjfmNUCb7ScA) - Brews and chicken wings/sandos. Slightly overpriced, but delicious.
+- [Foghorn Chicken](https://maps.app.goo.gl/48rMhMjfmNUCb7ScA) - Brews and chicken wings/sandos. Slightly overpriced, but delicious.
 - [Souvla]() - People swear by this fast-casual Greek spot. Great wraps, fries, and greek froyo
