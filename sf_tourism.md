@@ -51,7 +51,7 @@ There are Alamos in many US cities, so if you haven't gone, check this one out. 
 What food we most highly recommend
 <br>
 
-- [Tartine (Sunset location)](https://maps.app.goo.gl/nen7Cq3a3pXsBNci7) - best pastries around, we recommend ham croissant and almost croissant
+- [Tartine (Sunset location)](https://maps.app.goo.gl/nen7Cq3a3pXsBNci7) - best pastries around, we recommend ham croissant and almond croissant
 - [Ebisu](https://maps.app.goo.gl/SrSxWRG2AdAdrGdV9) - Our favorite sushi, we recommend any fresh fish and the miso eggplant
 - [Sandy's Muffuletta](https://maps.app.goo.gl/N7imXDxEYw2HEaPj7) - New Orleans-style sandwich, recommend getting 1/8th of both veggie and meat muffs.
 - [La Taq](https://maps.app.goo.gl/kswFTKFtMFTwHoJo6) - Best burritos in the US, the line can be crazy. Closed M/Tu
